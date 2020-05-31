@@ -2,7 +2,7 @@
 Revenda de Hospedagem Ilimitada
 
 
-A [Data Center Web](https://www.datacenterweb.com.br) lança hoje seu mais novo plano de [**revenda de hospedagem**](https://www.datacenterweb.com.br/revenda-hospedagem.php) **+ google [drive ilimitado](https://www.datacenterweb.com.br/)**
+A [Data Center Web](https://www.datacenterweb.com.br) lança seu mais novo plano de [**revenda de hospedagem**](https://www.datacenterweb.com.br/revenda-hospedagem.php) **+ google [drive ilimitado](https://www.datacenterweb.com.br/)**
 
 Somos a **primeira no Brasil** a criar um plano onde você terá:
 
